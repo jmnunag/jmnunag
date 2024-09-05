@@ -1,4 +1,4 @@
-## Hi there 👋
+## Heya~
 
 - 🔭 I’m currently working on not procrastinating
 - 🌱 I’m currently learning not to be lazy
